@@ -2,7 +2,7 @@
 - 👀 I’m interested in Minecraft
 - 🌱 I’m currently learning c++ and java
 - 💞️ I’m looking to collaborate on modrynth
-- 📫 How to reach me Mehrfruchtfleisch@twitch.tv
+- 📫 How to reach me uhldavid5@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: if u fall deep- you are depressed
 
